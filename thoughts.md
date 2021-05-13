@@ -5,3 +5,5 @@ I also have learned that students show better success in the program if they fro
 I will try and stick to the calendar that I've laid out for completing tasks during the remainder of Mod 0 and throughout the program.
 
 I am committed to asking for help if something takes me more than 20-30 minutes to figure out without any progress at all during the remainder of Mod 0.
+
+Thank you to Mason F for his optimism and clear/concise direction in these first two sessions!
